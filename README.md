@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Somya Malgudi
 - 👀 I’m interested in Coding
+- My Email:- somya.malgudi@gmail.com
 
 
 <!---
