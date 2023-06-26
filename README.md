@@ -3,4 +3,4 @@
 
 - 📫 How to reach me **somya.malgudi@gmail.com**
 
-
+- LinkedIn **https://www.linkedin.com/in/somya-malgudi-b4a740215/**
